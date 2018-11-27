@@ -1,0 +1,1 @@
+# Major-Electrical-and-Electronic-Components-List
